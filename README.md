@@ -1,1 +1,1 @@
-# chokykeren
+GUNAKAN, DENGAN, BIJAK, EA,KENTOD
